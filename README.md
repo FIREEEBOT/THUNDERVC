@@ -7,7 +7,7 @@
 ### Available on telegram as [THUNDERVCBOT](https://t.me/THUNDERVCBOT)
 
 <p align="center">
-  <img src="https://telegra.ph/file/dd04b1968f1bc1169d162.jpg">
+  <img src="https://telegra.ph/file/7afd5600440a473937ab2.jpg">
 </p>
 
 <h2> Features 🔥 </h2>
